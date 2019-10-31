@@ -1,3 +1,3 @@
-Leviosa
+Wingardium Leviosa
 Accio
 Repero
